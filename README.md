@@ -1,1 +1,1 @@
-# Growtopia-MulThod
+discord.gg/multhod
